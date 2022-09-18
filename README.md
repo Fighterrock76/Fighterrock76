@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Fighterrock76
+- 👀 I’m interested in cryptomining
+- 🌱 I’m currently learning power full A.I
+- 💞️ I’m looking to collaborate on A.I Technolgys
+- 📫 How to reach me email me at Prasanthkumarkollati@gmail.com
